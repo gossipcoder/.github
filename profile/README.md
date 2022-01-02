@@ -1,7 +1,8 @@
 ## Hi there 👋
 
 
-- https://discord.gg/MnDA9pfWAW
+- 🌈 discord: https://discord.gg/MnDA9pfWAW
+- 🍿 twitter: https://twitter.com/gossip_coder
 
 <!--
 
